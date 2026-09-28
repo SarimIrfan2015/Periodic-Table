@@ -1,3 +1,3 @@
 Periodic Table
 
-sarimirfan2015.github.io/Periodic-Table/
+http//sarimirfan2015.github.io/Periodic-Table/
